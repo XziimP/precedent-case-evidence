@@ -22,7 +22,7 @@
   Using was arrested for shooting a person to death. Why were his gun rites not taken away in the first place?
   
   We also have officers in Klamath stealing drugs and what not from their evidence room only to end up in a car crash because their so high from the drugs lol!
-  No doubt my knife was probably stolen from the evidence room and given to one of their kids that are probably torturing cats or something god only knows..
+  No doubt my knife was probably stolen from the evidence room and given to one of their kids that are probably torturing cats or something God only knows?..
   
   Klamath County definitely has their priorities misguided to say the least. Maybe if Klamath would stop spending so much money on extradeiting every
   John & Jane for any little thing because they weren't special you might be able to afford to feed your prisoners for once.
