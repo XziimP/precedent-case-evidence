@@ -1,4 +1,4 @@
-# precedent-case-evidence in regards to case # 16CR81721
+# precedent-case-evidence in regards to case 16CR81721 and making comparison to case 0801909CV Christian J. Selph Vs. K. Buskirk and or Klamath County
 
 * This repo contains evidence I have obtained of actual Klamath County criminal case documents that should set a precedent for my case.
 
