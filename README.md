@@ -10,4 +10,7 @@
   with excuse of being intoxicated with alcohol. The arresting officers never checked my Blood alcohol level and led me to believe if I told the 
   truth they would let me go. We all know what truth they wanted they wanted me to say I was guilty so I did unfortunately.
   
+  
+  Christian Selph wasn't even slapped on the wrist for his actions as where I have been given an unofficial death sentence 
+  because I supposively pointed a big knife at someone.
   From now on I will not put up with this injustice any longer. Drop my case thank you.
