@@ -4,7 +4,7 @@
 
 * I can also now bring this evidence with me to court if so needed to show the unfair treatment I have received.
 
-* This evidence can also be used to show that K. Buskirk is not credible and mentally un-stable.
+* This evidence can also be used to show that K. Buskirk is not credible and mentally un-stable and has a pattern of having issues with male partners.
 
 * Over all this evidence shows that under similar situations someone like Christian J. Selph gets away with actual physical abuse
   with excuse of being intoxicated with alcohol. The arresting officers never checked my Blood alcohol level and led me to believe if I told the 
