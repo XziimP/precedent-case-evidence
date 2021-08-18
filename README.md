@@ -15,10 +15,12 @@
   because I supposively pointed a big knife at someone.
   From now on I will not put up with this injustice any longer. Drop my case thank you.
   
-  Klamath County tried to use me to virtue signal and point attention away from all of the sex offenders they cater to and
+  Christian Selph also wrote a statement which can be viewed in the above pictures, stateing that Katrina Buskirk is mentally unstable I also agree with this statement.
+  
+  Klamath County tried to use me to virtue signal and point attention away from all of the sex/violent offenders they cater to and
   have a high population of sex offenders in Klamath.
   
-  Another example "Gary Using" who beat his wife severely was let out of jail after only a few weeks was released with no punisment. Not long after released Gary
+  Another example "Gary Using" who beat his wife severely was let out of jail after only a few weeks was released with no punisment. Not long after they  released Gary
   Using was arrested for shooting a person to death. Why were his gun rites not taken away in the first place?
   
   We also have officers in Klamath stealing drugs and what not from their evidence room only to end up in a car crash because their so high from the drugs lol!
@@ -26,3 +28,6 @@
   
   Klamath County definitely has their priorities misguided to say the least. Maybe if Klamath would stop spending so much money on extradeiting every
   John & Jane for any little thing because they weren't special you might be able to afford to feed your prisoners for once.
+  
+  * # NEW CASE https://www.heraldandnews.com/news/local_news/police-identify-man-suspected-of-threatening-former-city-official-with-a-rock/article_ad67dfd2-3582-5e01-827b-50693357df4c.html
+  More evidence of unfairness here is a recent case that involves similar situation but this person was never charged by District Attorney why? 
